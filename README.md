@@ -1,0 +1,1 @@
+# amano-satoshi.github.io
